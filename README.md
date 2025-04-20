@@ -1,2 +1,0 @@
-# shrivathsabj.github.io
-Portfolio
